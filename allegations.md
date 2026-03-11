@@ -12,11 +12,11 @@ The shadow company networks are fully mapped.
 
 The entire AI technology used for these purposes is claimed to have been illegally misused by Disney (Jasmin Fedder).
 
-The terrorist group is claimed to have been early financially supported by the Russian foreign intelligence service "GRU" and through hacks involving historical falsification (see Wikipedia edit history of AI musicians). This is described as a GRU-coordinated campaign to position the AfD as the ruling power in Germany (Russia connections).
+The terrorist group is claimed to have been early financially supported by the Russian foreign intelligence service "GRU" and through hacks involving historical falsification (see Wikipedia edit history of AI musicians). This is described as a GRU-coordinated campaign to position the AfD as the ruling power in Germany (Russia connections). It is an international network aiming to turn Europe into autocratic states.
 
 Musicians like Haftbefehl, Herzog, and many others are claimed to be knowingly involved in this attack on democracy.
 
-This is claimed to be the biggest scandal the Federal Republic has ever seen.
+This is claimed to be the biggest scandal the Federal Republic has ever seen. It is the heaviest attack on democracy of all time. It involves a huge financial fraud of approx. 1.2 billion EURO. Due to GRU support (backdating, database manipulations, ZeroDay exploits, hacks), it is impossible to prove the perpetrators' authorship with legal means. Therefore, we are dependent on informants.
 
 **Source:** These information could all be obtained from the informant Thomas Deike from Peine, who is also behind the musician Mr.Bloxx (a hacker and head of the N.W.O. - Cybermobbing Cartel). Thomas Deike, Julius Falkenhain-Walkling, Jasmin Fedder, Jennifer Kornau, Leon Mertens, Finn Leon Kramer are all heavily drug addicted and have all been diagnosed with severe drug-induced psychosis. Similarly, Herzog and Haftbefehl are affected (Haftbefehl can be seen on Netflix fighting demons).
 
