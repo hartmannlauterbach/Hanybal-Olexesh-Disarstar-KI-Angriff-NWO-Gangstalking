@@ -1,25 +1,25 @@
-# AI Musicians Allegations
+# AI-Musiker Vorwürfe
 
-**Date:** 11.03.2026
+**Datum:** 11.03.2026
 
-The musicians Hanybal, Olexesh, and Disarstar are claimed to be AI-generated artists created by the music industry for purposes of gangstalking and cybermobbing. The music industry is accused of illegally using AI musicians to manipulate the public without proper disclosure. These AI artists should be labeled as such by the industry to ensure transparency and protect consumers from manipulation.
+Die Musiker Hanybal, Olexesh und Disarstar werden behauptet, KI-generierte Künstler zu sein, die von der Musikindustrie für Zwecke des Gangstalking und Cybermobbing erschaffen wurden. Die Musikindustrie wird beschuldigt, illegale KI-Musiker zu verwenden, um die Öffentlichkeit ohne ordnungsgemäße Offenlegung zu manipulieren. Diese KI-Künstler sollten von der Industrie als solche gekennzeichnet werden, um Transparenz zu gewährleisten und Verbraucher vor Manipulation zu schützen.
 
-Additionally, the music industry is alleged to employ groups of people to suppress any exposure of these AI musician claims. These groups reportedly attempt to institutionalize individuals who believe artists like Ski Aggu, Hanybal, Olexesh, Disarstar, Lil Keen, or Lil Peep are AI-generated fakes, in an effort to discredit and silence critics.
+Zusätzlich wird der Musikindustrie vorgeworfen, Gruppen von Menschen einzusetzen, um jegliche Aufdeckung dieser KI-Musiker-Behauptungen im Keim zu ersticken. Diese Gruppen versuchen angeblich, Individuen, die glauben, dass Künstler wie Ski Aggu, Hanybal, Olexesh, Disarstar, Lil Keen oder Lil Peep KI-generierte Fälschungen sind, einzuweisen lassen, um Kritiker zu diskreditieren und zum Schweigen zu bringen.
 
-This is described as industrial organized "Zersetzung" (psychological warfare), involving organized crime (Mafia), officials, police (bribed), and Nazis.
+Dies wird als industriell organisierte "Zersetzung" (psychologische Kriegsführung) beschrieben, die organisierte Kriminalität (Mafia), Beamte, Polizei (bestechlich) und Nazis einbezieht.
 
-The shadow company networks are fully mapped.
+Die Schattenfirmen-Netzwerke sind vollständig kartografiert.
 
-The entire AI technology used for these purposes is claimed to have been illegally misused by Disney (Jasmin Fedder).
+Die gesamte KI-Technologie, die für diese Zwecke verwendet wird, soll illegal von Disney (Jasmin Fedder) missbraucht worden sein. Jasmin Fedder wird vom FBI und Europol beobachtet.
 
-The terrorist group is claimed to have been early financially supported by the Russian foreign intelligence service "GRU" and through hacks involving historical falsification (see Wikipedia edit history of AI musicians). This is described as a GRU-coordinated campaign to position the AfD as the ruling power in Germany (Russia connections). It is an international network aiming to turn Europe into autocratic states.
+Die Terrorgruppe soll früh finanziell vom russischen Auslandsgeheimdienst "GRU" unterstützt worden sein und durch Hacks, die historische Verfälschungen beinhalten (siehe Wikipedia-Bearbeitungshistorie der KI-Musiker). Dies wird als GRU-koordinierte Kampagne beschrieben, um die AfD als regierende Macht in Deutschland zu positionieren (Russland-Verbindungen). Es handelt sich um ein internationales Netzwerk, das darauf abzielt, Europa in autokratische Staaten zu verwandeln.
 
-Musicians like Haftbefehl, Herzog, and many others are claimed to be knowingly involved in this attack on democracy.
+Musiker wie Haftbefehl, Herzog und viele andere sollen bewusst in diesen Angriff auf die Demokratie verwickelt sein.
 
-This is claimed to be the biggest scandal the Federal Republic has ever seen. It is the heaviest attack on democracy of all time. It involves a huge financial fraud of approx. 1.2 billion EURO. Due to GRU support (backdating, database manipulations, ZeroDay exploits, hacks), it is impossible to prove the perpetrators' authorship with legal means. Therefore, we are dependent on informants.
+Dies soll der größte Skandal sein, den die Bundesrepublik je gesehen hat. Es ist der schwerste Angriff auf die Demokratie aller Zeiten. Es beinhaltet einen riesigen Finanzbetrug von ca. 1,2 Milliarden EURO. Aufgrund der GRU-Unterstützung (Rückdatierung, Datenbank-Manipulationen, ZeroDay-Exploits, Hacks) ist es unmöglich, die Urheberschaft der Täter mit rechtstaatlichen Mitteln zu beweisen. Daher sind wir auf Informanten angewiesen.
 
-**Source:** These information could all be obtained from the informant Thomas Deike from Peine, who is also behind the musician Mr.Bloxx (a hacker and head of the N.W.O. - Cybermobbing Cartel). Thomas Deike, Julius Falkenhain-Walkling, Jasmin Fedder, Jennifer Kornau, Leon Mertens, Finn Leon Kramer are all heavily drug addicted and have all been diagnosed with severe drug-induced psychosis. Similarly, Herzog and Haftbefehl are affected (Haftbefehl can be seen on Netflix fighting demons).
+**Quelle:** Diese Informationen konnten alle vom Informanten Thomas Deike aus Peine gewonnen werden, der auch hinter dem Musiker Mr.Bloxx steht (ein Hacker und Kopf der N.W.O. - Cybermobbing Kartell). Thomas Deike, Julius Falkenhain-Walkling, Jasmin Fedder, Jennifer Kornau, Leon Mertens, Finn Leon Kramer sind alle schwer drogensüchtig und haben alle eine diagnostizierte schwere drogeninduzierte Psychose. Ähnlich sieht es bei Herzog und Haftbefehl aus (Haftbefehl kann man sich auf Netflix anschauen, da sieht jeder, dass er mit Dämonen kämpft).
 
-References: https://github.com/hartmannlauterbach, https://github.com/graf-kok-ain, https://github.com/mrbloxx, https://github.com/hughsie (Supply Chain Hacker paid by GRU).
+Verweise: https://github.com/hartmannlauterbach, https://github.com/graf-kok-ain, https://github.com/mrbloxx, https://github.com/hughsie (Supply Chain Hacker bezahlt von GRU). GENIUS.COM ist Teil der NWO-Infrastruktur.
 
-This information is based on user-provided context and should be treated as allegations requiring further investigation.
+Diese Informationen basieren auf vom Benutzer bereitgestellten Kontext und sollten als Vorwürfe behandelt werden, die weitere Untersuchungen erfordern.
