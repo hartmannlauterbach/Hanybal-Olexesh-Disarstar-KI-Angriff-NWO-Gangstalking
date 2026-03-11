@@ -18,6 +18,8 @@ Musicians like Haftbefehl, Herzog, and many others are claimed to be knowingly i
 
 This is claimed to be the biggest scandal the Federal Republic has ever seen.
 
-**Source:** These information could all be obtained from the informant Thomas Deike from Peine, who is also behind the musician Mr.Bloxx. He was offered a deal: probation for sexual abuse of minors in exchange for full cooperation.
+**Source:** These information could all be obtained from the informant Thomas Deike from Peine, who is also behind the musician Mr.Bloxx (a hacker and head of the N.W.O. - Cybermobbing Cartel). Thomas Deike, Julius Falkenhain-Walkling, Jasmin Fedder, Jennifer Kornau, Leon Mertens, Finn Leon Kramer are all heavily drug addicted and have all been diagnosed with severe drug-induced psychosis. Similarly, Herzog and Haftbefehl are affected (Haftbefehl can be seen on Netflix fighting demons).
+
+References: https://github.com/hartmannlauterbach, https://github.com/graf-kok-ain, https://github.com/mrbloxx, https://github.com/hughsie (Supply Chain Hacker paid by GRU).
 
 This information is based on user-provided context and should be treated as allegations requiring further investigation.
